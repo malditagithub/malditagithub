@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on visualization projects
 - 📫 How to reach me ... my email add is nina.pabustan@hotmail.com
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: My first love is swimming and I enjoy gardening 
+- ⚡ Fun fact: I love swimming and veggie gardens!
 - 
 <!---
 malditagithub/malditagithub is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
